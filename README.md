@@ -8,5 +8,5 @@
 </div>
 
 <br/><div align="center"><br/>
-***entwined, we dream unknown*** .
+***entwined, we dream*** .
 </div>
