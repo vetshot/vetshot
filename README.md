@@ -1,5 +1,7 @@
 <p align="center">
-☆
+☆ 
+ <p align="center">
+entwined, we dream unknown.
 </p>  
 
 <p align="center">
