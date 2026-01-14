@@ -2,7 +2,7 @@
 
   ![](https://komarev.com/ghpvc/?username=servamps&color=000000&style=plastic&label=𓏲𝄢&abbreviated=true)
 <br/><div align="center">
-  <img src="https://files.catbox.moe/g7803v.webp">
+  <img src="https://64.media.tumblr.com/8547413305dbf5414379c08303c2e596/6855a7267d7ef035-cc/s1280x1920/a45aab6592739ec57f85335392ddc1b3aed7cdc3.pnj">
 
 </div>
 
