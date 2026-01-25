@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=servamps&color=000000&style=plastic&label=ᝰ🚬)
+  ![](https://komarev.com/ghpvc/?username=servamps&color=000000&style=plastic&label=🗝️)
 <br/><div align="center">
   <img src="https://files.catbox.moe/jj16mb.png">
 
