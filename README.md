@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=servamps&color=A0B1B9&style=plastic&label=₊˚❆)
 <br/><div align="center">
 
-  <img src="https://file.garden/aWda6_hwaGcNwjuj/Kae.png">
+  <img src="https://file.garden/aWda6_hwaGcNwjuj/kae.png">
 
 </div>
 
