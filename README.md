@@ -7,4 +7,4 @@
 
 </div>
 
-[rentry](https://rentry.co/veraphic)⠀⠀⠀⠀⠀⠀[atabook](https://zenivet.atabook.org/)
+[rentry](https://rentry.co/veraphic)⠀⠀![](https://file.garden/aWda6_hwaGcNwjuj/nt.gif)⠀⠀[atabook](https://zenivet.atabook.org/)
