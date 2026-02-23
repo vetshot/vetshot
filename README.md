@@ -7,6 +7,6 @@
 
 </div>
 
-[rentry](https://rentry.co/veraphic)⠀⠀⠀⠀[atabook](https://zenivet.atabook.org/)⠀⠀⠀⠀[straw](vetshot.straw.page)
+[rentry](https://rentry.co/veraphic)⠀⠀⠀⠀[atabook](https://zenivet.atabook.org/)⠀⠀⠀⠀[straw](https://vetshot.straw.page)
 
 ![](https://file.garden/aWda6_hwaGcNwjuj/nt.gif)
