@@ -1,6 +1,5 @@
 <div align="center">
 
-  ![](https://file.garden/aWda6_hwaGcNwjuj/nt.gif)
   
   <img src="https://file.garden/aWda6_hwaGcNwjuj/deceit.png">
 
