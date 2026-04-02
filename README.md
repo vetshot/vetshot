@@ -5,7 +5,7 @@
 
 [𝔯𝔢𝔫𝔱𝔯𝔶](https://rentry.co/vilsch)⠀⠀⠀⠀[新𝔟𝔬𝔬𝔨](https://poison.atabook.org/)⠀⠀⠀⠀[𝔰𝔱𝔯𝔞𝔴](https://purepoison.straw.page)
 
-![cr-katanaberry](https://file.garden/aWda6_hwaGcNwjuj/binto.png)
+![cr-katanaberry](https://file.garden/aWda6_hwaGcNwjuj/lel.png)
 
 
 </div>
